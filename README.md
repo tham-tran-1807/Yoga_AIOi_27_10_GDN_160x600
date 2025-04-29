@@ -1,0 +1,2 @@
+# Yoga_AIOi_27_10_GDN_160x600
+Yoga_AIOi_27_10_GDN_160x600
